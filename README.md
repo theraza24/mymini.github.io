@@ -1,1 +1,0 @@
-# mymini.github.io
